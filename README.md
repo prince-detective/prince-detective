@@ -1,7 +1,5 @@
 <p align= "center">
-  goro akechi & <b>sunday</b> irl
-  <br>
-  <img src="https://i.postimg.cc/YC6VVX0j/IMG-7901.jpg" alt="decoration">
+  <img src="https://i.postimg.cc/pV9nB4cQ/IMG-7903.jpg" alt="decoration">
   <br>
 <b>⟡ light</b> / prince  
   <br>
